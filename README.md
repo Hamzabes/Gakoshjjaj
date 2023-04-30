@@ -1,2 +1,0 @@
-# Gakoshjjaj
-Hamzahhkjk
